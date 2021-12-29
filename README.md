@@ -16,4 +16,8 @@ capable to accomplish anything as long as you are
 committed to endure the fire which is a cost that
 most people are not willing to pay.  I endured,
 so can you!  It is the second greatest decision
-I have made in my entire life!  
+I have made in my entire life!  If you want to
+find out what the first and greatest decision
+I have ever made in my life, you just but have to
+ask.  It saved my life and it hasn't always been
+sunshine and daisies, but it has gone well for me.
